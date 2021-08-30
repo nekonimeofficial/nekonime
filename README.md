@@ -22,6 +22,14 @@ Email for contact: nekonimeofficial@gmail.com
 ![alt text](https://raw.githubusercontent.com/nekonimeofficial/nekonime/main/Images/1.png)
 
 
+![alt text](https://raw.githubusercontent.com/nekonimeofficial/nekonime/main/Images/4.jpg)
+
+
+![alt text](https://raw.githubusercontent.com/nekonimeofficial/nekonime/main/Images/3.jpg)
+
+
+![alt text](https://raw.githubusercontent.com/nekonimeofficial/nekonime/main/Images/7.jpg)
+
 
 
 
