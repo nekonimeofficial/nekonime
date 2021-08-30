@@ -19,7 +19,9 @@ Here's how Nekonime will look like!
 *If you think that there's something wrong with the images below please contact us first*
 Email for contact: nekonimeofficial@gmail.com
 
-<img />
+![alt text](https://raw.githubusercontent.com/nekonimeofficial/nekonime/main/Images/1.png)
+
+
 
 
 
