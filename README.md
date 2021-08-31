@@ -16,6 +16,8 @@ If you support us you can get some benefits like an account free of ads, early a
 
 Here's how Nekonime will look like!
 
+Disclaimer: "The images below are just mockups, the final result may slightly change from what you're seeing here" 
+
 *If you think that there's something wrong with the images below please contact us first*
 
 Email for contact: nekonimeofficial@gmail.com
